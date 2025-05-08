@@ -20,4 +20,10 @@ Poleg tega je v zadnjih letih opaziti vse več projektov, kjer komisp spodbuja t
 
 Pri obisku različnih regij v Sloveniji in širše po Evropi je očitno, da se turistična ponudba vedno bolj osredotoča na doživetja, ki vključujejo stik z naravo, lokalno skupnostjo in kulturnimi posebnostmi. Kazinoji, kjer obstajajo, so diskretno vključeni v to širšo zgodbo, kar kaže na zrel pristop k razvoju turizma. Tako slovenski kot evropski primeri dokazujejo, da je mogoče ustvariti trajnostno turistično ponudbo, kjer so vse dejavnosti v harmoniji z okoljem in lokalnimi prebivalci.
 
+Koristni viri:
+
+[Veličina vsakdanjih trenutkov](https://www.ourboox.com/bp/1662874/Strategijeuspeha/)
+
+[Utrinki s poti ob Jadranskem morju](https://pametnaizbira.ucoz.org/index/pametnaizbira/0-5)
+
 [dp]: https://www.komisp.si/
